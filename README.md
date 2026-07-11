@@ -1,0 +1,1 @@
+# Krupai-sci-solution-m2-69-A
